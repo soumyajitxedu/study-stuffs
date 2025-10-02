@@ -1,1 +1,0 @@
-This For my school academic Paper for analysis the question papers also as backup file purpose , if your take reference or Take this paper as for work but remember paper should inaccurate so plz double check and maybe unverified questions exist. this question created or made by teachers . I'm give credit to teachers for this. Thanx:)
